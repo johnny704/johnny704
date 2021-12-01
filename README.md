@@ -5,6 +5,5 @@
 - 📫 How to reach me .864-572-6253
 
 <!---
-johnny704/johnny704 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+johnny704/johnny704 is a ✨ special ✨ person...interact and i promise your headache
+Will vanish
